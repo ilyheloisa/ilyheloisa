@@ -1,5 +1,10 @@
-### Hi there 👋
+###  💕 About me
 
+💋 Learning to program
+
+      🌿 Art lover and good ideas
+
+🌹 Looking for new passions
 <!--
 **ilyheloisa/ilyheloisa** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
 
