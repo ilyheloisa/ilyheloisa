@@ -1,10 +1,6 @@
 ###  💕 About me
 
-💋 Learning to program
-
-      🌿 Art lover and good ideas
-
-🌹 Looking for new passions
+Heeeey
 
 ![](https://www.purefandom.com/wp-content/uploads/2018/11/giphy-2.gif)
 <!--
